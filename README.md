@@ -1,0 +1,1 @@
+# From-D29F-Diagnostic-Validation-to-the-Farid-Gravity-Law-and-the-TRI-432-Hz-Interferometer
